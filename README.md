@@ -1,0 +1,4 @@
+-- not mine
+-- people that did not make this are selling it
+-- why gatekeep something i didnt even make
+-- mess around with smoothing before playing mm
